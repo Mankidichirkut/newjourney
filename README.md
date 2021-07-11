@@ -1,0 +1,2 @@
+# newjourney
+special story
